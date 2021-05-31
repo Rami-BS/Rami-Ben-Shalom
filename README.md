@@ -8,7 +8,9 @@ I always excited to meet and engage new people and learn from them and with them
 
 ### What I do for fun
 Enjoy working and especially practicing yoga
+
 Reading books
+
 PC gaming
 
 ### You can reach 📫 me at
