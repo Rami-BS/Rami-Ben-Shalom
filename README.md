@@ -7,7 +7,7 @@ I'm a guy who loves to grow through challenges and learn new ideas and skills ev
 I always excited to meet and engage new people and learn from them and with them.
 
 ### What I do for fun
-Enjoy working and especially practicing yoga
+Enjoy working out and especially practicing yoga
 
 Reading books
 
